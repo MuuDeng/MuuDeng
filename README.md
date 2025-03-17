@@ -1,2 +1,2 @@
 
-![App Screenshot](https://i.pinimg.com/736x/9d/f4/bc/9df4bce2be5e45410fbd0cade68c5d90.jpg)
+![App Screenshot](https://cdn.donmai.us/sample/99/1e/__koharu_blue_archive_drawn_by_ajifurai__sample-991e99d6f6cbb71668c744015b8029eb.jpg)
